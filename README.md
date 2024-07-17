@@ -198,7 +198,5 @@ For support, email merugusaitharun333@gmail.com
 
 
 
-### Support
 
-For support, email merugusaitharun333@gmail.com
 
